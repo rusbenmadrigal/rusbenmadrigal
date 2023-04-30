@@ -1,4 +1,4 @@
-# Rusben (Russ) Madrigal
+# Rusben Madrigal (aka. Russ)
 
 <img src="https://raw.githubusercontent.com/rzashakeri/beautifygithubprofile/master/cover-repo.jpg">
 
