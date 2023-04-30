@@ -8,4 +8,4 @@
 
 ---
 
-# Hello friends 🖐️
+# Hello friends | Pura Vida! 🖐️
